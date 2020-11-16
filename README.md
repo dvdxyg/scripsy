@@ -1,0 +1,2 @@
+# scripsy
+lmao xd lol !!!!
